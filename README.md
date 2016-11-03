@@ -1,0 +1,1 @@
+# legendz-online-store.github.io
